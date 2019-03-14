@@ -1,2 +1,3 @@
 # hello-world
 learning to code
+Dearly Beloved, we are gathered here today to get through this thing called life; electric word "life" it means forever and that's a mightly long time but I'm here to tell you, there's something else...
